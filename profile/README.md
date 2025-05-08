@@ -4,6 +4,8 @@
 
 **Basketball Legends Games** are more than just online hoops – they’re *epic*, *crazy*, and *unblocked* sports experiences that let you *smash*, *dash*, and *dunk* like a true *champion*! Whether you’re looking for a quick match or an *ultimate* tournament challenge, this game genre delivers thrilling *2-player* basketball action featuring your *favorite legends* from the court.
 
+## <a href="https://1kb.link/oRkF8h">👉 Click To Play Basketball Legends Unblocked 👈</a>
+
 ---
 
 ### Why Basketball Legends Games Are So Addictive
